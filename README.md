@@ -1,1 +1,1 @@
-# Ce7ven-1spinner-AppDater
+Ce7ven-1spinner-AppDater Only
